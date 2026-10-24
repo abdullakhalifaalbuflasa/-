@@ -1,5 +1,9 @@
 #By Abdulla Khalifa  
 𝓦𝖗𝖎𝖙𝖊𝖗 𝒶𝓃𝒹 𝓝𝖔𝖛𝖊𝖑𝖎𝖘𝖙
+
+عبـــــــدالله خلـــــــيفة
+https://abdullakhalifa.com
+
 #Bahraini Surplus Value
 Contrary to what the region’s superficial sociologists and economists write, we must read the development of production differently, beginning with the roots of this economy: the pearl-diving economy.
 In the thinking of these two “disciplines,” trade appears to have been the cause of society’s wealth and economic prosperity. One researcher writes: “The second source that increased Bahrain’s wealth and commercial importance was trade. It possessed a large fleet of vessels, which enabled it to maintain important trading relations, especially with India; indeed, Bahrain became a centre for distributing goods throughout the Arabian Peninsula...” (History of Bahrain, Faiq Hamdi Tahboub, Dar Dhat al-Salasil, p. 3).
